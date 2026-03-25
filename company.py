@@ -1,1 +1,1 @@
-Company name: Hotelogix
+Company name: Hotelogix Pvt Ltd
